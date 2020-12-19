@@ -1,2 +1,0 @@
-# sidefli.github.io
-domain
